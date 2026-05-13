@@ -1,0 +1,1 @@
+# componente-pr-ctico.-
